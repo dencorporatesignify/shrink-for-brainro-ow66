@@ -1,4 +1,4 @@
-
+shrink for brainrots Script new offers the most advanced shrink for brainrots Script, with esp and auto-heal. Perfect for dominating any match.
 
 
 
